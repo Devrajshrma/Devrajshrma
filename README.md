@@ -15,7 +15,7 @@
 
 - 📄 Know about my experiences [https://devrajportfolio.netlify.app/devresume.pdf](https://devrajportfolio.netlify.app/devresume.pdf)
 
-- ⚡ Fun fact **I think I am funny**
+- ⚡ Fun fact **I think I am rapper**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
